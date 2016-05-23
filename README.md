@@ -11,3 +11,4 @@
 *	Django Unchained (2012)
 *	The Martian (2015)
 *	The Great Gatsby (2013)
+*	Kung Fu Panda 3 (2016)

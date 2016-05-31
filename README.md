@@ -1,7 +1,8 @@
 # 电影
 
 ## 2016
-
+* 老炮儿 (2015)
+* 荒蛮故事 Relatos salvajes (2014)
 * 深夜食堂
 * Iron Man 2 (2010)
 * Shaun the Sheep Movie (2015)

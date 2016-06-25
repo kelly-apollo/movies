@@ -6,6 +6,7 @@
 * 深夜食堂 (2014)
 * 禁闭岛 Shutter Island (2010)
 * 速度与激情5 Fast Five (2011)
+* 杀死比尔 Kill Bill: Vol. 1 (2003)
 * Iron Man 2 (2010)
 * Shaun the Sheep Movie (2015)
 * Gravity (2013)

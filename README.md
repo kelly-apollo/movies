@@ -15,6 +15,7 @@
 * 阿飞正传 (1990)
 * 七月与安生 (2016)
 * 奇异博士 Doctor Strange (2016)
+* 魔兽 Warcraft (2016)
 * Iron Man 2 (2010)
 * Shaun the Sheep Movie (2015)
 * Gravity (2013)

@@ -19,6 +19,7 @@
 * 你的名字。 君の名は。 (2016)
 * 言叶之庭 言の葉の庭 (2013)
 * 疯狂的麦克斯4：狂暴之路 Mad Max: Fury Road (2015)
+* 黑天鹅 Black Swan (2010)
 * Iron Man 2 (2010)
 * Shaun the Sheep Movie (2015)
 * Gravity (2013)

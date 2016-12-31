@@ -21,6 +21,7 @@
 * 疯狂的麦克斯4：狂暴之路 Mad Max: Fury Road (2015)
 * 黑天鹅 Black Swan (2010)
 * 比海更深 海よりもまだ深く (2016)
+* 驴得水 (2016)
 * Iron Man 2 (2010)
 * Shaun the Sheep Movie (2015)
 * Gravity (2013)

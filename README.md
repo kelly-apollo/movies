@@ -10,6 +10,7 @@
 * 初恋这首情歌 Sing Street (2016)
 * 再次出发之纽约遇见你 Begin Again (2013)
 * 曾经 Once (2006)
+* 神奇动物在哪里 Fantastic Beasts and Where to Find Them (2016)
 
 ## 2016
 

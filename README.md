@@ -14,6 +14,8 @@
 * 比利 · 林恩的中场战事 Billy Lynn's Long Halftime Walk (2016)
 * 哈利 · 波特与魔法石 Harry Potter and the Sorcerer's Stone (2001)
 * 春娇救志明 (2017)
+* 闻香识女人 Scent of a Woman (1992)
+
 
 ## 2016
 

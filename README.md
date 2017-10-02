@@ -21,6 +21,7 @@
 * 八恶人 The Hateful Eight (2015)
 * 烈日灼心 (2015)
 * 千与千寻 千と千尋の神隠し (2001)
+* 猩球崛起 Rise of the Planet of the Apes (2011)
 
 
 ## 2016

@@ -24,6 +24,7 @@
 1. 月球 Moon (2009)
 1. 我不是药神 (2018)
 1. 明日边缘 Edge of Tomorrow (2014)
+1. 头号玩家 Ready Player One (2018)
 
 
 ## 2017

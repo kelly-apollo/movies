@@ -34,6 +34,7 @@
 1. 步履不停 歩いても 歩いても (2008)
 1. 一出好戏 (2018)
 1. 成为沃伦·巴菲特 Becoming Warren Buffett (2017)
+1. 天使爱美丽 Le fabuleux destin d'Amélie Poulain (2001)
 
 
 ### 电视剧

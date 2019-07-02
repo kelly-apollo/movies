@@ -15,6 +15,7 @@
 1. 生门 (2016)
 1. 流浪地球（2019）
 1. 绿皮书 Green Book (2018)
+1. 蜘蛛侠：平行宇宙 Spider-Man: Into the Spider-Verse (2018)
 
 
 ## 2018

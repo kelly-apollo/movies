@@ -17,6 +17,10 @@
 1. 绿皮书 Green Book (2018)
 1. 蜘蛛侠：平行宇宙 Spider-Man: Into the Spider-Verse (2018)
 
+### 电视剧
+
+1. 权利的游戏（全集）
+
 
 ## 2018
 

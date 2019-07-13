@@ -17,6 +17,7 @@
 1. 绿皮书 Green Book (2018)
 1. 蜘蛛侠：平行宇宙 Spider-Man: Into the Spider-Verse (2018)
 1. 何以为家 (2019)
+1. 阿丽塔：战斗天使 Alita: Battle Angel (2019)
 
 ### 电视剧
 

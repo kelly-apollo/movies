@@ -18,6 +18,7 @@
 1. 蜘蛛侠：平行宇宙 Spider-Man: Into the Spider-Verse (2018)
 1. 何以为家 (2019)
 1. 阿丽塔：战斗天使 Alita: Battle Angel (2019)
+1. 波西米亚狂想曲 Bohemian Rhapsody (2018)
 
 ### 电视剧
 

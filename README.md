@@ -19,6 +19,7 @@
 1. 何以为家 (2019)
 1. 阿丽塔：战斗天使 Alita: Battle Angel (2019)
 1. 波西米亚狂想曲 Bohemian Rhapsody (2018)
+1. 罗马假日 Roman Holiday (1953)
 
 ### 电视剧
 

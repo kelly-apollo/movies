@@ -25,6 +25,7 @@
 1. 网络谜踪 Searching (2018)
 1. 超脱 Detachment (2011)
 1. 复仇者联盟4：终局之战 Avengers: Endgame (2019)
+1. 菊次郎的夏天 (1999)
 
 ### 电视剧
 

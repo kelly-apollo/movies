@@ -76,6 +76,7 @@
 1. 一出好戏 (2018)
 1. 成为沃伦·巴菲特 Becoming Warren Buffett (2017)
 1. 天使爱美丽 Le fabuleux destin d'Amélie Poulain (2001)
+1. 重庆森林（1994）
 
 
 ### 电视剧

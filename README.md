@@ -7,6 +7,7 @@
 1. 她 Her (2013)
 1. 王朝 Dynasties (2018)
 1. 小丑 Joker (2019)
+1. 爱尔兰人 The Irishman (2019)
 
 ## 2019
 

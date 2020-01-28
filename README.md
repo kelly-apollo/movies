@@ -9,6 +9,8 @@
 1. 小丑 Joker (2019)
 1. 爱尔兰人 The Irishman (2019)
 1. 模仿游戏 The Imitation Game (2014)
+1. 囧妈 (2020)
+1. 末代皇帝 The Last Emperor (1987)
 
 ## 2019
 

@@ -26,6 +26,7 @@
 1. 本杰明·巴顿奇事 The Curious Case of Benjamin Button (2008)
 1. 利刃出鞘 Knives Out (2019)
 1. 倩女幽魂 (1987)
+1. 成为简·奥斯汀 Becoming Jane (2007)
 
 ## 电视剧
 

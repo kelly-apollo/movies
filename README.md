@@ -29,6 +29,7 @@
 1. 成为简·奥斯汀 Becoming Jane (2007)
 1. 冰雪奇缘2 Frozen II (2019)
 1. 海蒂和爷爷 Heidi (2015)
+1. 一天 One Day (2011)
 
 ## 电视剧
 

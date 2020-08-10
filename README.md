@@ -32,6 +32,7 @@
 1. 一天 One Day (2011)
 1. 成为：米歇尔·奥巴马自传 Becoming (2020)
 1. 三块广告牌 Three Billboards Outside Ebbing, Missouri (2017)
+1. 雾山五行 (2020)
 
 ## 电视剧
 

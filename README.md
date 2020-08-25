@@ -33,6 +33,7 @@
 1. 成为：米歇尔·奥巴马自传 Becoming (2020)
 1. 三块广告牌 Three Billboards Outside Ebbing, Missouri (2017)
 1. 雾山五行 (2020)
+1. 徒手攀岩 Free Solo (2018)
 
 ## 电视剧
 

@@ -34,6 +34,7 @@
 1. 三块广告牌 Three Billboards Outside Ebbing, Missouri (2017)
 1. 雾山五行 (2020)
 1. 徒手攀岩 Free Solo (2018)
+1. 极速风流 Rush (2013)
 
 ## 电视剧
 

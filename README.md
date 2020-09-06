@@ -74,6 +74,7 @@
 1. 重庆森林（1994）
 1. 罗马 Roma （2018）
 1. 婚姻故事 Marriage Story （2019）
+1. 美丽心灵 A Beautiful Mind (2001)
 
 ### 电视剧
 

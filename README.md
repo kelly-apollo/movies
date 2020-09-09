@@ -36,6 +36,7 @@
 1. 徒手攀岩 Free Solo (2018)
 1. 极速风流 Rush (2013)
 1. 美丽心灵 A Beautiful Mind (2001)
+1. 花木兰 Mulan (2020)
 
 
 ## 电视剧

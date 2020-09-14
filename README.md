@@ -38,6 +38,7 @@
 1. 美丽心灵 A Beautiful Mind (2001)
 1. 花木兰 Mulan (2020)
 1. 花木兰 Mulan (1998)
+1. 美丽人生 La vita è bella (1997)
 
 
 ## 电视剧
